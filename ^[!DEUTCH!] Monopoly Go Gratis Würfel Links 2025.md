@@ -1,4 +1,4 @@
-# (DEUTCH) Monopoly Go Gratis Würfel Links 2025 [MNLTOP]
+# ^[!DEUTCH!] Monopoly Go Gratis Würfel Links 2025 [TBSEQ]
 
 
 ## [KLICKEN SIE HIER](https://lookerstudio.google.com/s/i0yFe1wQxjY)
