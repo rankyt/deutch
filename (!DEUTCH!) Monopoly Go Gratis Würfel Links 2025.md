@@ -1,8 +1,8 @@
 # (DEUTCH) Monopoly Go Gratis Würfel Links 2025 [MNLTOP]
 
 
-## [KLICKEN SIE HIER](https://lookerstudio.google.com/s/vubtIUBp5Lk)
-## [KLICKEN SIE HIER](https://lookerstudio.google.com/s/vubtIUBp5Lk)
+## [KLICKEN SIE HIER](https://lookerstudio.google.com/s/i0yFe1wQxjY)
+## [KLICKEN SIE HIER](https://lookerstudio.google.com/s/i0yFe1wQxjY)
 
 Klar! Hier ist ein 500-Wörter-Text auf Deutsch darüber, wie man **kostenlose Würfel in Monopoly GO** bekommen kann:
 
